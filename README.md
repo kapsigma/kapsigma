@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kapsigma
 - 👀 I’m interested in myself
 - 🌱 I’m currently learning fr bro
-- 💞️ I’m looking to collaborate on anything that could gave me good money
+- 💞️ I’m looking to collaborate on anything that could give me good money
 - 📫 How to reach me im easy to find
 - 😄 Pronouns: king
 - ⚡ Fun fact: im fun
