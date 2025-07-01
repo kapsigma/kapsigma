@@ -5,6 +5,7 @@
 - 📫 How to reach me? just hmu shawty
 - 😄 Pronouns: king
 - ⚡ Fun fact: im fun
+- 🐐 Beware! im kinda goated
 
 <!---
 kapsigma/kapsigma is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
